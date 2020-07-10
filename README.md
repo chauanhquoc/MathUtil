@@ -11,5 +11,6 @@ at fpt University, HCMC Campus
 ## Connect me via:
 1.[Github](http://github.com/chauanhquoc)
 2.[Facebook](https://www.facebook.com/anh.chauquoc.1)
+3.[Gmail](chauaanhquoc@gmail.com)
 
-#### © 2020 by Anh.Quoc
+#### © 2020 by Anh.Quoc | FPT University, HCMC Campus
